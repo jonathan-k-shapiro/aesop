@@ -1,0 +1,28 @@
+
+# The Ass in the Lion's Skin
+
+## Story
+
+
+### Paragraph 1
+
+An Ass found a Lion's skin left in the forest by a hunter. He dressed himself in it, and amused himself by hiding in a thicket and rushing out suddenly at the animals who passed that way. All took to their heels the moment they saw him.
+
+
+
+### Paragraph 2
+
+The Ass was so pleased to see the animals running away from him, just as if he were King Lion himself, that he could not keep from expressing his delight by a loud, harsh bray. A Fox, who ran with the rest, stopped short as soon as he heard the voice. Approaching the Ass, he said with a laugh:
+
+
+
+### Paragraph 3
+
+"If you had kept your mouth shut you might have frightened me, too. But you gave yourself away with that silly bray."
+
+
+
+## Moral
+
+_A fool may deceive by his dress and appearance, but his words will soon show what he really is._
+

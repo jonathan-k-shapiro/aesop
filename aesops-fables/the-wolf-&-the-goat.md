@@ -1,0 +1,34 @@
+
+# The Wolf & the Goat
+
+## Story
+
+
+### Paragraph 1
+
+A hungry Wolf spied a Goat browsing at the top of a steep cliff where he could not possibly get at her.
+
+
+
+### Paragraph 2
+
+"That is a very dangerous place for you," he called out, pretending to be very anxious about the Goat's safety. "What if you should fall! Please listen to me and come down! Here you can get all you want of the finest, tenderest grass in the country."
+
+
+
+### Paragraph 3
+
+The Goat looked over the edge of the cliff.
+
+
+
+### Paragraph 4
+
+"How very, very anxious you are about me," she said, "and how generous you are with your grass! But I know you! It's your own appetite you are thinking of, not mine!"
+
+
+
+## Moral
+
+_An invitation prompted by selfishness is not to be accepted._
+

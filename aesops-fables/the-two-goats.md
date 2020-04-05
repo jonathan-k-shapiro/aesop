@@ -1,0 +1,22 @@
+
+# The Two Goats
+
+## Story
+
+
+### Paragraph 1
+
+Two Goats, frisking gayly on the rocky steeps of a mountain valley, chanced to meet, one on each side of a deep chasm through which poured a mighty mountain torrent. The trunk of a fallen tree formed the only means of crossing the chasm, and on this not even two squirrels could have passed each other in safety. The narrow path would have made the bravest tremble. Not so our Goats. Their pride would not permit either to stand aside for the other.
+
+
+
+### Paragraph 2
+
+One set her foot on the log. The other did likewise. In the middle they met horn to horn. Neither would give way, and so they both fell, to be swept away by the roaring torrent below.
+
+
+
+## Moral
+
+_It is better to yield than to come to misfortune through stubbornness._
+

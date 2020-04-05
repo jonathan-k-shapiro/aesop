@@ -1,0 +1,28 @@
+
+# The Gnat & the Bull
+
+## Story
+
+
+### Paragraph 1
+
+A Gnat flew over the meadow with much buzzing for so small a creature and settled on the tip of one of the horns of a Bull. After he had rested a short time, he made ready to fly away. But before he left he begged the Bull's pardon for having used his horn for a resting place.
+
+
+
+### Paragraph 2
+
+"You must be very glad to have me go now," he said.
+
+
+
+### Paragraph 3
+
+"It's all the same to me," replied the Bull. "I did not even know you were there."
+
+
+
+## Moral
+
+_We are often of greater importance in our own eyes than in the eyes of our neighbor. The smaller the mind the greater the conceit._
+

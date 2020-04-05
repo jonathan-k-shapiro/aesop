@@ -1,0 +1,22 @@
+
+# The Cock & the Jewel
+
+## Story
+
+
+### Paragraph 1
+
+A Cock was busily scratching and scraping about to find something to eat for himself and his family, when he happened to turn up a precious jewel that had been lost by its owner.
+
+
+
+### Paragraph 2
+
+"Aha!" said the Cock. "No doubt you are very costly and he who lost you would give a great deal to find you. But as for me, I would choose a single grain of barleycorn before all the jewels in the world."
+
+
+
+## Moral
+
+_Precious things are without value to those who cannot prize them._
+

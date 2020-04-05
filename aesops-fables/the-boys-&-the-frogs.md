@@ -1,0 +1,28 @@
+
+# The Boys & the Frogs
+
+## Story
+
+
+### Paragraph 1
+
+Some Boys were playing one day at the edge of a pond in which lived a family of Frogs. The Boys amused themselves by throwing stones into the pond so as to make them skip on top of the water.
+
+
+
+### Paragraph 2
+
+The stones were flying thick and fast and the Boys were enjoying themselves very much; but the poor Frogs in the pond were trembling with fear.
+
+
+
+### Paragraph 3
+
+At last one of the Frogs, the oldest and bravest, put his head out of the water, and said, "Oh, please, dear children, stop your cruel play! Though it may be fun for you, it means death to us!"
+
+
+
+## Moral
+
+_Always stop to think whether your fun may not be the cause of another's unhappiness._
+

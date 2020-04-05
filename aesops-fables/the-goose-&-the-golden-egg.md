@@ -1,0 +1,28 @@
+
+# The Goose & the Golden Egg
+
+## Story
+
+
+### Paragraph 1
+
+There was once a Countryman who possessed the most wonderful Goose you can imagine, for every day when he visited the nest, the Goose had laid a beautiful, glittering, golden egg.
+
+
+
+### Paragraph 2
+
+The Countryman took the eggs to market and soon began to get rich. But it was not long before he grew impatient with the Goose because she gave him only a single golden egg a day. He was not getting rich fast enough.
+
+
+
+### Paragraph 3
+
+Then one day, after he had finished counting his money, the idea came to him that he could get all the golden eggs at once by killing the Goose and cutting it open. But when the deed was done, not a single golden egg did he find, and his precious Goose was dead.
+
+
+
+## Moral
+
+_Those who have plenty want more and so lose all they have._
+

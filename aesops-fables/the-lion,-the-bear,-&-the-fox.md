@@ -1,0 +1,28 @@
+
+# The Lion, the Bear, & the Fox
+
+## Story
+
+
+### Paragraph 1
+
+Just as a great Bear rushed to seize a stray kid, a Lion leaped from another direction upon the same prey. The two fought furiously for the prize until they had received so many wounds that both sank down unable to continue the battle.
+
+
+
+### Paragraph 2
+
+Just then a Fox dashed up, and seizing the kid, made off with it as fast as he could go, while the Lion and the Bear looked on in helpless rage.
+
+
+
+### Paragraph 3
+
+"How much better it would have been," they said, "to have shared in a friendly spirit."
+
+
+
+## Moral
+
+_Those who have all the toil do not always get the profit._
+
